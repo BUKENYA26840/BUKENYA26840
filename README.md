@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BUKENYA26840
-- 👀 I’m interested in database development,Web development,Programming
+- 👀 I’m interested in **database development**,**Web development**,**Programming**,**Photography**, **Videography**
 - 🌱 I’m currently learning at AUCA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me via phone: +250 788576536
