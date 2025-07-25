@@ -2,7 +2,7 @@
 - 👀 I’m interested in database development,Web development,Programming
 - 🌱 I’m currently learning at AUCA
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me via phone: +250 786563756
+- 📫 How to reach me via phone: +250 788576536
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Smart boy
 
